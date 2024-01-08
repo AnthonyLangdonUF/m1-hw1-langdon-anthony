@@ -1,5 +1,5 @@
 # My First Coding Assignment #
-
+![Alt text](<Anthony_n_Nicky (1).jpg>)
 ## About me ##
 Hello! I'm Anthony. I'm in my second semester at UF for my Masters in Global Strategic Communication. I live near Orlando with my fiancé, our 11-month old son and our dog, Gus. I love to write and watch football, and in the new year would love to get back into drumming, visit more national parks and, most importantly, marry my fiancé in November!
 
